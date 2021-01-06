@@ -1,1 +1,0 @@
-# Understanding-The-Gift-of-Prophecy
